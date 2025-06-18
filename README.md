@@ -7,6 +7,8 @@ my name is aizen, you can call me bona! jade or any name do you prefer to call m
 
 
 i m a really nice person,i dont bite you can approach me if you want to, w2i, c+h and giving me stuffs doesn't bother me :)
+
+
 if you want to take a inspo from my pt skin, you may.. but only a hair or shading and not a complete full skin because that would be count as stealing-
 
 
