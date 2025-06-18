@@ -1,6 +1,7 @@
 # Sapphire-
-1. hello!
-2.
+
+__hello!__
+
 
 my name is aizen, you can call me bona! jade or any name do you prefer to call me idc unless.. if its inappropriate😶
 
@@ -13,11 +14,3 @@ u can look up my cardd.co for more information about me
 
 ![images - 2025-06-18T233333 521](https://github.com/user-attachments/assets/e09e8417-c306-4801-bfc3-1d9c83ceb1b6)
 
-I close my eyes
-" **And believe that you are here
-Wrong I have done
-Please make it clear
-Heaven will fall
-As you hold him in your arms
-Blood on our hands
-We stand alone** "..🎵
